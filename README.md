@@ -1,1 +1,2 @@
 # kataTenis
+Lira Mendoza Verónica 
